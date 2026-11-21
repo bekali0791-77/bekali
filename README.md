@@ -1,0 +1,2 @@
+# bekali
+men dasturchiman
